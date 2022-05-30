@@ -2,7 +2,7 @@
 ----
 ## 🤑 NFT/ETH STEALER PAGE[BETA TEST]
 
-![@ox_services](https://github.com/0xServices/0xServices/blob/main/gif.gif?raw=true)
+![@ox_services](https://github.com/0xServices/0xServices/blob/main/9ELZrgfDU3.gif?raw=true)
 ----
 
 ## 📌 Features

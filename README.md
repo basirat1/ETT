@@ -1,6 +1,6 @@
 # ⚠️ You need to host it on a real website for it to work! To Buy The Full Clean & Deobfuscated Script Or For Any Other Types Of Scripts & Development Orders Message Me On: https://t.me/ox_services
 ----
-## 🤑 NFT/ETH STEALER PAGE[BETA TEST]
+## 🤑 NFT/ETH STEALER PAGE[BETA]
 
 ![@ox_services](https://github.com/0xServices/0xServices/blob/main/9ELZrgfDU3.gif?raw=true)
 ----
